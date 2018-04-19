@@ -4,7 +4,7 @@
 As a student, being able to unwind with classmates and teachers in an informal setting has been great for developing a feeling of 'mateship' within the class. Studies have shown that drinking with colleages (or in our case classmates) has many benefits, some of which I have listed below:
 
 ### 1. Improves Teamwork 
-Classmates become more comfortable with each other and with teachers when in a social setting opposed to a structured classroom setting. We get the opportunity to socialise and discuss issues other than coding or topics other than those we are covering in class. This in turn allows us to create closer bonds with each other, which will benefit us when we are having trouble in class and need to turn to classmates for assistance.
+Classmates become more comfortable with each other and with teachers when in a social setting as opposed to a structured classroom setting. We get the opportunity to socialise and discuss issues other than coding or topics other than those we are covering in class. This in turn allows us to create closer bonds with each other, which will benefit us when we are having trouble in class and need to turn to classmates for assistance.
 
 ### 2. Increased Creativity and Problem Solving Skills
 [ScienceDirect](http://www.sciencedirect.com/science/article/pii/S1053810016303713) states that a moderate intake of alcohol is proven to increase creativity and problem solving skills. Weekly drinks will be of great advantage during the weeks where we are completing major assessments as it will a) provide students with a chance to unwind and b) potentially allow students to think of alternative solutions that they might have otherwise missed.
