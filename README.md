@@ -29,4 +29,4 @@ Being able to let your hair down with other students over drinks? It's *very* fu
 <br/><br/><br/>
 
 ## Thank you for your consideration. <br/><br/><br/>
-<sup>please buy us drinks <sup>we're <sup>so <sup>poor🍸 </sup></sup></sup></sup>
+<sup>please buy us drinks <sup>we're <sup>so <sup>poor</sup></sup></sup></sup>
